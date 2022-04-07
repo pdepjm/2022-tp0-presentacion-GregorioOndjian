@@ -2,5 +2,5 @@
 
 ## Estudiante: _Gregorio Ondjian_
 Nombre y apellido: Gregorio Ondjian
-Hago hockey velez y soy buena onda(?
-![Este soy yo anashex](Fotitomia.jpeg)
+hago hockey en velez y tengo 18
+![Este soy yo](Fotitomia.jpeg)
